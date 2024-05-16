@@ -27,5 +27,15 @@ class node total time layer 》》》》
 
 
 
+c clash multiplier>>
+
+c environ spsce log
+///\\
+
+
+space boot swing ragen???
+
+compse console E log(elog))
+
 
 layer totalaccross(((*1×1(1.+)))
